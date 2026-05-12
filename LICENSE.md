@@ -1,4 +1,4 @@
-# 
+# Enhance Gymshark Training for macOS with elite Gymshark Training for macOS Module | goal-setting + workout-tracking, the #1 module. Includes goal-setting and workout-tracking for
 
 
 
